@@ -1,0 +1,11 @@
+*2. ¿Qué es la salvación?*
+
+La salvación es la promesa que Dios te hizo de que finalmente encontrarás el camino que conduce a Él. Y Él no puede dejar de cumplirla. Garantiza que al tiempo le llegará su fin, al igual que a todos los pensamientos que se originaron en él. La Palabra de Dios se le concede a toda mente que cree tener pensamientos separados, a fin de reemplazar esos pensamientos de conflicto con el Pensamiento de la paz.
+
+El Pensamiento de la paz le fue dado al Hijo en el mismo instante en que su mente concibió el pensamiento de la guerra. Antes de eso no había necesidad de ese Pensamiento, pues la paz se había otorgado sin opuestos y simplemente era. Una mente dividida, no obstante, tiene necesidad de curación. Y así, el Pensamiento que tiene el poder de subsanar la división pasó a formar parte de cada fragmento de la mente que seguía siendo una, pero no reconocía su unidad. Al no conocerse a sí misma, pensó que había perdido su Identidad.
+
+La salvación es un des-hacer en el sentido de que no hace nada, al no apoyar el mundo de sueños y de malicia. De esta manera, las ilusiones desaparecen. Al no prestarles apoyo, deja que simplemente se conviertan en polvo. Y lo que ocultaban queda ahora revelado: un altar al santo Nombre de Dios donde Su Palabra está escrita, con las ofrendas de tu perdón depositadas ante él, y tras ellas, no mucho más allá, el recuerdo de Dios.
+
+Acudamos diariamente a este santo lugar y pasemos un rato juntos. Ahí compartimos nuestro sueño final. Es éste un sueño en el que no hay pesares, pues contiene un atisbo de toda la gloria que Dios nos ha dado. En él se ve brotar la hierba, los árboles florecer y los pájaros hacer sus nidos en su ramaje. La tierra nace de nuevo desde una nueva perspectiva. La noche ya pasó, y ahora nos hemos unido en la luz.
+
+Desde ahí le extendemos la salvación al mundo, pues ahí fue donde la recibimos. El himno que llenos de júbilo entonamos le proclama al mundo que la libertad ha retornado, que al tiempo casi le ha llegado su fin y que el Hijo de Dios tan sólo tiene que esperar un instante antes de que su Padre sea recordado, los sueños hayan terminado, la eternidad haya disuelto al mundo con su luz y el Cielo sea lo único que exista.

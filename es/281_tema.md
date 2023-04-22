@@ -1,0 +1,11 @@
+*7. ¿Qué es el Espíritu Santo?*
+
+El Espíritu Santo es el mediador entre las ilusiones y la verdad. Puesto que tiene que salvar la brecha entre la realidad y los sueños, la percepción conduce al conocimiento a través de la gracia que Dios le ha dado para que sea el regalo que le hace a todo aquel que acude a Él en busca de la verdad. A través del puente que Él tiende se llevan todos los sueños ante la verdad para que la luz del conocimiento los disipe. Allí los sonidos y las imágenes se descartan para siempre. Y donde antes se percibían, el perdón ha hecho posible el tranquilo final de la percepción.
+
+El objetivo de las enseñanzas del Espíritu Santo es precisamente acabar con los sueños. Pues todo sonido e imagen tiene que transformarse de testigo del miedo en testigo del amor. Y cuando esto se logre, el aprendizaje habrá alcanzado el único objetivo que jamás tuvo realmente. Pues el aprendizaje, tal como el Espíritu Santo lo utiliza a fin de alcanzar el resultado que Él percibe para él, se convierte en el medio que se transciende a sí mismo, de manera que pueda ser reemplazado por la Verdad Eterna.
+
+Si supieses cuánto anhela tu Padre que reconozcas tu impecabilidad, no dejarías que Su Voz te lo pidiese en vano, ni le darías la espalda a lo que Él te ofrece para reemplazar a todas las imágenes y sueños atemorizantes que tú has forjado. El Espíritu Santo entiende los medios que fabricaste para alcanzar lo que por siempre ha de ser inalcanzable. Mas si se los ofreces a Él, Él se valdrá de esos medios que inventaste a fin de exiliarte para llevar a tu mente allí donde verdaderamente se encuentra en su hogar.
+
+Desde el conocimiento, donde Dios lo ubicó, el Espíritu Santo te exhorta a dejar que el perdón repose sobre tus sueños para que puedas recobrar la cordura y la paz interior. Sin el perdón, tus sueños seguirán aterrorizándote. Y el recuerdo de todo el Amor de tu Padre no podrá retornar a tu mente para proclamar que a los sueños les ha llegado su fin.
+
+Acepta el regalo que Tu Padre te hace. Es un llamamiento que el Amor le hace al Amor para que tan sólo sea lo que es. El Espíritu Santo es el regalo de Dios mediante el cual se le restituye la quietud del Cielo al bienamado Hijo de Dios. ¿Te negarías a asumir la función de completar a Dios, cuando todo lo que Su Voluntad dispone es que tú estés completo?

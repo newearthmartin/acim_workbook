@@ -1,0 +1,11 @@
+*11. ¿Qué es la creación?*
+
+La creación es la suma de todos los Pensamientos de Dios, en número infinito y sin límite alguno en ninguna parte. Sólo el Amor crea, y únicamente a Su semejanza. Jamás hubo tiempo alguno en el que todo lo que creó no existiese. Ni jamás habrá tiempo alguno en que nada que haya creado sufra merma alguna. Los Pensamientos de Dios han de ser por siempre y para siempre exactamente como siempre han sido y como son: inalterables con el paso del tiempo, así como después de que éste haya cesado.
+
+Los Pensamientos de Dios poseen todo el poder de su Creador. Pues Él quiere incrementar el Amor extendiéndolo. Y así, Su Hijo participa en la creación, y, por lo tanto, no puede sino compartir con su Padre el poder de crear. Lo que Dios ha dispuesto que sea uno eternamente, lo seguirá siendo cuando el tiempo se acabe, y no cambiará a través del tiempo, sino que seguirá siendo tal como era antes de que surgiera la idea del tiempo.
+
+La creación es lo opuesto a todas las ilusiones porque es la verdad. La creación es el santo Hijo de Dios, pues en la creación Su Voluntad es plena con respecto a todo, al hacer que cada parte contenga la Totalidad. La inviolabilidad de su unicidad está garantizada para siempre, perennemente a salvo dentro de Su santa Voluntad, y más allá de cualquier posibilidad de daño, separación, imperfección o de nada que pueda mancillar en modo alguno su impecabilidad.
+
+Nosotros, los Hijos de Dios, somos la creación. Parecemos estar separados y no ser conscientes de nuestra eterna unidad con Él. Sin embargo, tras todas nuestras dudas y más allá de todos nuestros temores, todavía hay certeza, pues el Amor jamás abandona Sus Pensamientos, y ellos comparten Su certeza. El recuerdo de Dios se encuentra en nuestras mentes santas, que son conscientes de su unicidad y de su unión con su Creador. Que nuestra función sea únicamente permitir el retorno de este recuerdo y que Su Voluntad se haga en la tierra, así como que se nos restituya nuestra cordura y ser solamente tal como Dios nos creó.
+
+Nuestro Padre nos llama. Oímos Su Voz y perdonamos a la creación en Nombre de su Creador, la Santidad Misma, Cuya santidad Su creación comparte con Él; Cuya santidad sigue siendo todavía parte de nosotros.

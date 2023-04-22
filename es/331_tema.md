@@ -1,0 +1,11 @@
+*12. ¿Qué es el ego?*
+
+El ego no es otra cosa que idolatría; el símbolo de un yo limitado y separado, nacido en un cuerpo, condenado a sufrir y a que su vida acabe en la muerte. Es la "voluntad" que ve a la Voluntad de Dios como su enemigo, y que adopta una forma en que Ésta es negada. El ego es la "prueba" de que la fuerza es débil y el amor temible, la vida en realidad es la muerte y sólo lo que se opone a Dios es verdad.
+
+El ego es demente. Lleno de miedo, cree alzarse más allá de lo Omnipresente, aparte de la Totalidad y separado de lo Infinito. En su demencia cree también haber vencido a Dios Mismo. Y desde su terrible autonomía "ve" que la Voluntad de Dios ha sido destruida. Sueña con el castigo y tiembla ante las figuras de sus sueños: sus enemigos, que andan tras él queriendo asesinarle antes de que él pueda proteger su seguridad atacándolos primero.
+
+El Hijo de Dios no tiene ego ¿Qué puede saber él de la locura o de la muerte de Dios, cuando mora en Él? ¿Qué puede saber de penas o de sufrimientos, cuando vive en una dicha eterna? ¿Qué puede saber del miedo o del castigo, del pecado o de la culpabilidad, del odio o del ataque, cuando lo único que le rodea es paz eterna, por siempre imperturbable y libre de todo conflicto, en la tranquilidad y silencio más profundos?
+
+Conocer la realidad significa no ver al ego ni a sus pensamientos, sus obras o actos, sus leyes o creencias, sus sueños o esperanzas, así como tampoco los planes que tiene para su propia salvación y el precio que hay que pagar por creer en él. Desde el punto de vista del sufrimiento, el precio que hay que pagar por tener fe en él es tan inmenso que la ofrenda que se hace a diario en su tenebroso santuario es la crucifixión del Hijo de Dios. Y la sangre no puede sino correr ante el altar donde sus enfermizos seguidores se preparan para morir.
+
+Una sola azucena de perdón, no obstante, puede transformar la obscuridad en luz y el altar a las ilusiones en el templo a la Vida Misma. Y la paz se les restituirá para siempre a las santas mentes que Dios creó como Su Hijo, Su morada, Su dicha y Su amor, completamente Suyas, y completamente unidas a Él.

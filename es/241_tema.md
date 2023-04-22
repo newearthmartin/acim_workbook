@@ -1,0 +1,11 @@
+*3. ¿Qué es el mundo?*
+
+El mundo es una percepción falsa. Nació de un error, y no ha abandonado su fuente. Persistirá mientras se siga abrigando el pensamiento que le dio vida. Cuando el pensamiento de separación haya sido substituido por uno de verdadero perdón, el mundo se verá de una manera completamente distinta; de una manera que conduce a la verdad en la que el mundo no puede sino desaparecer junto con todos sus errores. Ahora su fuente ha desaparecido, al igual que sus efectos.
+
+El mundo se fabricó como un acto de agresión contra Dios. Es el símbolo del miedo. Mas ¿qué es el miedo sino la ausencia de amor? El mundo, por lo tanto, se fabricó con la intención de que fuese un lugar en el que Dios no pudiese entrar y en el que Su Hijo pudiese estar separado de Él. Ésa fue la cuna de la percepción, pues el conocimiento no podría haber sido la causa de pensamientos tan descabellados. Mas los ojos engañan, y los oídos oyen falsedades. Ahora es muy posible cometer errores porque se ha perdido la certeza.
+
+Y para substituirla nacieron los mecanismos de la ilusión, que ahora van en pos de lo que se les ha encomendado buscar. Su finalidad es servir el propósito para el que se fabricó el mundo, de modo que diese testimonio de él y lo hiciera real. Dichos mecanismos ven en sus ilusiones una sólida base donde existe la verdad y donde se mantiene aparte de las mentiras. No obstante, no informan más que de ilusiones, las cuales se mantienen separadas de la verdad.
+
+Del mismo modo en que el propósito de la vista fue alejarte de la verdad, puede asimismo tener otro propósito. Todo sonido se convierte en la llamada de Dios, y Aquel a quien Dios designó como el Salvador del mundo puede conferirle a toda percepción un nuevo propósito. Sigue Su Luz, y verás el mundo tal como Él lo ve. Oye sólo Su Voz en todo lo que te habla. Y deja que Él te conceda la paz y la certeza que tú desechaste, pero que el Cielo salvaguardó para ti en Él.
+
+No nos quedemos tranquilos hasta que el mundo se haya unido a nuestra nueva percepción. No nos demos por satisfechos hasta que el perdón sea total. Y no intentemos cambiar nuestra función. Tenemos que salvar al mundo. Pues nosotros que lo fabricamos tenemos que contemplarlo a través de los ojos de Cristo, de modo que aquello que se concibió para que muriese pueda ser restituido a la vida eterna.

@@ -1,0 +1,31 @@
+*TERCER REPASO*
+
+*Introducción*
+
+Hoy comienza nuestro siguiente repaso. Cada día repasaremos dos de las últimas veinte lecciones durante diez días consecutivos de práctica. Para estas sesiones de práctica seguiremos un formato especial, que se te exhorta a seguir tan fielmente como puedas.
+
+Entendemos, por supuesto, que tal vez te resulte imposible hacer cada día y cada hora del día lo que aquí se sugiere como óptimo. Tu aprendizaje no se verá afectado si se te pasa una sesión de práctica porque te resultó imposible llevarla a cabo en el momento señalado. No es necesario tampoco que te esfuerces excesivamente por recuperar el número de sesiones perdidas. Nuestro objetivo no es hacer un rito de las sesiones de práctica, pues ello impediría el logro de nuestra meta.
+
+Pero el aprendizaje definitivamente se vería afectado si dejases de llevar a cabo una sesión de práctica por no haber estado dispuesto a dedicarle el tiempo requerido. No te engañes a ti mismo con respecto a esto. Esa falta de buena voluntad puede estar muy cuidadosamente disimulada tras la falsa apariencia de situaciones que parecen estar fuera de tu control. Aprende a distinguir aquellas situaciones que no son propicias para tu práctica de aquellas que urdes para enmascarar tu falta de buena voluntad.
+
+Aquellas sesiones de práctica que dejaste de hacer porque por una razón u otra no quisiste llevarlas a cabo, deberías hacerlas tan pronto como hayas cambiado de parecer con respecto a tu objetivo. No estás dispuesto a cooperar en la práctica de la salvación sólo si ello supone un obstáculo para los objetivos que son más importantes para ti. Una vez que dejes de otorgarles valor, permite entonces que tus sesiones de práctica se conviertan en los substitutos de las letanías que les dedicabas. Pues no te aportaron nada. Mas llevar a cabo tus prácticas te lo ofrece todo. Por lo tanto, acepta su ofrecimiento y permanece en paz.
+
+El formato que debes seguir en estos repasos es el siguiente: dedica cinco minutos dos veces al día, o más si así lo prefieres, a reflexionar sobre los pensamientos que se han asignado. Lee las ideas y comentarios que se ofrecen para los ejercicios de cada día. Luego piensa en ellos, mientras dejas que tu mente los relacione con tus necesidades, tus aparentes problemas y todas tus preocupaciones.
+
+Invita las ideas a tu mente, y deja que ésta las use según crea conveniente. Ten fe en que sabrá usarlas debidamente, pues para tomar sus decisiones cuenta con la ayuda de Aquel que te dio los pensamientos a ti. ¿En qué otra cosa podrías confiar sino en lo que se encuentra en tu mente? Ten fe, durante estos repasos, en que los medios que el Espíritu Santo utiliza no pueden fallar. La sabiduría de tu mente acudirá en tu ayuda. Dale instrucciones al principio, luego relájate con completa confianza y deja que la mente utilice los pensamientos que le diste tal como te fueron dados para que ella los utilizara.
+
+Se te dieron con absoluta confianza y con la absoluta seguridad de que harías un buen uso de ellos; con la absoluta fe de que entenderías sus mensajes y los utilizarías en beneficio propio. Ofréceselos a tu mente con esa misma confianza, seguridad y fe. Ella no fallará. Pues es el medio del que el Espíritu Santo se vale para tu salvación. Y, puesto que ella goza de Su confianza, debe ser sin duda merecedora de la tuya también.
+
+Hacemos hincapié en lo beneficioso que sería para ti dedicar los primeros cinco minutos del día a tus repasos, así como los últimos cinco antes de irte a dormir. Si esto no es factible, trata por lo menos de dividirlos de tal manera que lleves a cabo uno por la mañana y el otro durante la última hora antes de irte a dormir.
+
+Los ejercicios a llevar a cabo a lo largo del día son igualmente importantes, o incluso más importantes. Te has sentido inclinado a hacer los ejercicios únicamente en los momentos señalados, y luego a ocuparte de otras cosas a las que no aplicas lo que has aprendido. Como resultado de ello, no has reforzado suficientemente tu aprendizaje, ni le has dado la oportunidad de probar cuán grandes son los regalos que te puede ofrecer. He aquí otra oportunidad de hacer un buen uso de él.
+
+Durante estos repasos subrayamos la necesidad de no dejar que lo aprendido permanezca inactivo entre tus dos sesiones de práctica más largas. Intenta dar a tus dos ideas diarias un repaso breve, aunque serio, cada hora. Usa una de ellas a la hora en punto, y la otra, media hora más tarde. No necesitas dedicar más de un momento a cada una de ellas. Repite la idea, y deja que tu mente descanse en silencio y en paz por un rato. Luego puedes dedicarte a otras cosas. Trata, sin embargo, de mantener el pensamiento vivo en ti, y deja que sirva también para ayudarte a conservar la paz a lo largo del día.
+
+Si algo te sobresalta, piensa de nuevo en la idea. Estas sesiones de práctica están diseñadas para ayudarte a formar el hábito de aplicar lo que aprendes cada día a todo lo que haces. No es cuestión de repetir el pensamiento y luego olvidarte de él. La ayuda que te puede prestar es infinita. Y su propósito es serte útil en toda circunstancia, en todo momento y lugar, así como siempre que necesites cualquier clase de ayuda. Procura, pues, tener presente la idea en todas tus actividades diarias, y haz que sean santas, dignas del Hijo de Dios y aceptables para Dios y para tu Ser.
+
+Cada repaso diario debe concluir con una afirmación más del pensamiento que se debe repetir a la hora en punto, así como del que se debe repetir media hora más tarde. No te olvides. Esta segunda oportunidad de repasar cada una de estas ideas producirá avances tan grandes que emergeremos de estos repasos con ganancias tan extraordinarias en nuestro aprendizaje que de ahí en adelante marcharemos sobre un terreno más firme, con pasos más seguros y con mayor fe.
+
+No te olvides de lo poco que has aprendido.
+No te olvides de lo mucho que puedes aprender ahora.
+No te olvides de lo mucho que tu Padre te necesita, según repasas los pensamientos que Él te dio.

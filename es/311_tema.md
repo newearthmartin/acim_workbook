@@ -1,0 +1,11 @@
+*10. ¿Qué es el Juicio Final?*
+
+El Segundo Advenimiento de Cristo le confiere al Hijo de Dios este regalo: poder oír a la Voz que habla por Dios proclamar que lo falso es falso y que lo que es verdad jamás ha cambiado. Y éste es el juicio con el que a la percepción le llega su fin. Lo primero que verás será un mundo que ha aceptado que esto es verdad, al haber sido proyectado desde una mente que ya ha sido corregida. Y con este panorama santo, la percepción imparte una silenciosa bendición y luego desaparece, al haber alcanzado su objetivo y cumplido su misión.
+
+El Juicio Final sobre el mundo no encierra condena alguna. Pues ve a éste completamente perdonado, libre de pecado y sin propósito alguno. Y al no tener causa ni función ante los ojos de Cristo, simplemente se disuelve en la nada. Ahí nació y ahí ha de terminar. Y todas las figuras del sueño con el que el mundo comenzó desaparecen con él. Los cuerpos no tienen ahora ninguna utilidad, por lo tanto, desaparecen también, pues el Hijo de Dios es ilimitado.
+
+Tú que creías que el Juicio Final de Dios condenaría al mundo al infierno junto contigo, acepta esta santa verdad: el Juicio de Dios es el regalo de la Corrección que le concedió a todos tus errores. Dicha Corrección te libera de ellos y de todos los efectos que parecían tener. Tener miedo de la gracia redentora de Dios es tener miedo de liberarse totalmente del sufrimiento, del retorno a la paz, de la seguridad y la felicidad, así como de tu unión con tu propia Identidad.
+
+El Juicio Final de Dios es tan misericordioso como cada uno de los pasos de Su plan para bendecir a Su Hijo y exhortarle a regresar a la paz eterna que comparte con él. No tengas miedo del amor, pues sólo él puede sanar todo pesar, enjugar todas las lágrimas y despertar tiernamente de su sueño de dolor al Hijo que Dios reconoce como Suyo. No tengas miedo de eso. La salvación te pide que le des la bienvenida. Y el mundo espera tu grata aceptación de ella, gracias a lo cual él se liberará.
+
+Este es el juicio Final de Dios: "Tú sigues siendo Mi santo Hijo, por siempre inocente, por siempre amoroso y por siempre amado, tan ilimitado como tu Creador, absolutamente inmutable y por siempre inmaculado. Despierta, pues, y regresa a Mí. Yo Soy tu Padre y tú eres Mi Hijo".

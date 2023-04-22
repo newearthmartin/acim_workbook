@@ -1,0 +1,11 @@
+*5. ¿Qué es el cuerpo?*
+
+El cuerpo es una cerca que el Hijo de Dios se imagina haber erigido para separar partes de su Ser de otras partes. Cree vivir dentro de esa cerca, para morir a medida que ésta se deteriora y se desmorona. Pues cree estar a salvo del amor dentro de ella. Al identificarse con lo que considera es su seguridad, cree ser lo que ésta es. ¿De qué otro modo, si no, podría estar seguro de que permanece dentro del cuerpo, y de que mantiene al amor afuera?
+
+El cuerpo no perdurará. Sin embargo, para él eso supone una doble seguridad. Pues la temporalidad del Hijo de Dios es la "prueba" de que sus cercas funcionan y de que están llevando a cabo la tarea que su mente les asignó. Pues si su unidad aún permaneciese intacta, ¿quién podría atacar y quién podría ser atacado? ¿Quién podría ser el vencedor? ¿Quién la presa? ¿Quién podría ser la víctima? ¿Quién el asesino? Y si él no muriese, ¿qué "prueba" habría de que el eterno Hijo de Dios puede ser destruido?
+
+El cuerpo es un sueño. Al igual que otros sueños, a veces parece reflejar felicidad, pero puede súbitamente revertir al miedo, la cuna de todos los sueños. Pues sólo el amor puede crear de verdad, y la verdad jamás puede temer. Hecho para ser temeroso, el cuerpo no puede sino cumplir el propósito que le fue asignado. Mas podemos cambiar el propósito que el cuerpo obedece si cambiamos de parecer con respecto a su finalidad.
+
+El cuerpo es el medio a través del cual el Hijo de Dios recobra la cordura. Aunque el cuerpo fue concebido para condenarlo al infierno para siempre, el objetivo del Cielo ha substituido a la búsqueda del infierno. El Hijo de Dios busca la mano de su hermano para ayudarlo a marchar por la misma senda que él. Ahora el cuerpo es santo. Ahora su propósito es sanar la misma mente para dar muerte a la cual fue concebido.
+
+Te identificarás con lo que pienses que te ha de dar seguridad. Sea lo que sea, creerás que ello es lo que tú eres. Tu seguridad reside en la verdad, no en las mentiras. El amor es tu seguridad. El miedo no existe. Identifícate con el amor, y estarás a salvo. Identifícate con el amor, y estarás en tu morada. Identifícate con el amor, y hallarás tu Ser.

@@ -1,0 +1,11 @@
+*6. ¿Qué es el Cristo?*
+
+Cristo es el Hijo de Dios tal como Él lo creó. Cristo es el Ser que compartimos y que nos une a unos con otros, y también con Dios. Es el Pensamiento que todavía mora en la Mente que es Su Fuente. No ha abandonado Su santo hogar ni ha perdido la inocencia en la que fue creado. Mora inmutable para siempre en la Mente de Dios.
+
+Cristo es el eslabón que te mantiene unido a Dios, y la garantía de que la separación no es más que una ilusión de desesperanza, pues toda esperanza morará por siempre en Él. Tu mente es parte de la Suya, y Ésta de la tuya. Él es la parte en la que se encuentra la Respuesta de Dios, y en la que ya se han tomado todas las decisiones y a los sueños les ha llegado Su fin. Nada que los ojos del cuerpo puedan percibir lo afecta en absoluto. Pues aunque Su Padre depositó en Él los medios para tu salvación, Él sigue siendo, no obstante, el Ser que, al igual que Su Padre, no conoce el pecado.
+
+Al ser el hogar del Espíritu Santo y sentirse a gusto únicamente en Dios, Cristo permanece en paz en el Cielo de tu mente santa. Él es la única parte de ti que en verdad es real. Lo demás son sueños. Mas éstos se le entregarán a Cristo, para que se desvanezcan ante Su gloria y pueda por fin serte revelado tu santo Ser, el Cristo.
+
+El Espíritu Santo se extiende desde el Cristo en ti hasta todos tus sueños, y los invita a venir hasta Él para que puedan ser transformados en la verdad. Él los intercambiará por el sueño final que Dios dispuso fuese el fin de todos los sueños. Pues cuando el perdón descanse sobre el mundo y cada uno de los Hijos de Dios goce de paz, ¿qué podría mantener las cosas separadas cuando lo único que se puede ver es la faz de Cristo?
+
+¿Y por cuánto tiempo habrá de verse esta santa faz, cuando no es más que el símbolo de que el periodo de aprendizaje ya ha concluido y de que el objetivo de la Expiación por fin se ha alcanzado? Tratemos, por lo tanto, de encontrar la faz de Cristo y de no buscar nada más. Al contemplar Su gloria, sabremos que no tenemos necesidad de aprender nada, ni de percepción, ni de tiempo, ni de ninguna otra cosa excepto del santo Ser, el Cristo que Dios creó como Su Hijo.

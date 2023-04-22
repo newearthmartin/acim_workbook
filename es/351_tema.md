@@ -1,0 +1,11 @@
+*14. ¿Qué soy?*
+
+Soy el Hijo de Dios, pleno, sano e íntegro, resplandeciente en el reflejo de Su Amor. En mí Su creación se santifica y se le garantiza vida eterna. En mí el amor alcanza la perfección, el miedo es imposible y la dicha se establece sin opuestos. Soy el santo hogar de Dios Mismo. Soy el Cielo donde Su Amor reside. Soy Su santa Impecabilidad Misma, pues en mi pureza reside la Suya Propia.
+
+La necesidad de usar palabras está casi llegando a su fin ahora. Mas en los últimos días de este año que tú y yo juntos le ofrecimos a Dios, hemos encontrado un solo propósito, el cual compartimos. Y así, te uniste a mí, de modo que lo que yo soy tú lo eres también. La verdad de lo que somos no es algo de lo que se pueda hablar o describir con palabras. Podemos, sin embargo, darnos cuenta de la función que tenemos aquí, y usar palabras para hablar de ello así como para enseñarlo, si predicamos con el ejemplo.
+
+Somos los portadores de la salvación. Aceptamos nuestro papel como salvadores del mundo, el cual se redime mediante nuestro perdón conjunto. Y al concederle el regalo de nuestro perdón, éste se nos concede a nosotros. Vemos a todos como nuestros hermanos, y percibimos todas las cosas como buenas y bondadosas. No estamos interesados en ninguna función que se encuentre más allá del umbral del Cielo. El conocimiento volverá a aflorar en nosotros cuando hayamos desempeñado nuestro papel. Lo único que nos concierne ahora es dar la bienvenida a la verdad.
+
+Nuestros son los ojos a través de los cuales la visión de Cristo ve un mundo redimido de todo pensamiento de pecado. Nuestros, los oídos que oyen la Voz que habla por Dios proclamar que el mundo es inocente. Nuestras, las mentes que se unen conforme bendecimos al mundo. Y desde la unión que hemos alcanzado, invitamos a todos nuestros hermanos a compartir nuestra paz y a consumar nuestra dicha.
+
+Somos los santos mensajeros de Dios que hablan en Su Nombre, y que al llevar Su Palabra a todos aquellos que Él nos envía, aprendemos que está impresa en nuestros corazones. Y de esa forma, nuestras mentes cambian con respecto al objetivo para el que vinimos y al que ahora procuramos servir. Le traemos buenas nuevas al Hijo de Dios que pensó que sufría. Ahora ha sido redimido. Y al ver las puertas del Cielo abiertas ante él, entrará y desaparecerá en el Corazón de Dios.

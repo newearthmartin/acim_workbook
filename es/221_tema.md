@@ -1,0 +1,11 @@
+*1. ¿Qué es el perdón?*
+
+El perdón reconoce que lo que pensaste que tu hermano te había hecho en realidad nunca ocurrió. El perdón no perdona pecados, otorgándoles así realidad. Simplemente ve que no hubo pecado. Y desde este punto de vista todos tus pecados quedan perdonados. ¿Qué es el pecado sino una idea falsa acerca del Hijo de Dios? El perdón ve simplemente la falsedad de dicha idea y, por lo tanto, la descarta. Lo que entonces queda libre para ocupar su lugar es la Voluntad de Dios.
+
+Un pensamiento que no perdona es aquel que emite un juicio que no pone en duda a pesar de que es falso. La mente se ha cerrado y no puede liberarse. Dicho pensamiento protege la proyección, apretando aún más sus cadenas de manera que las distorsiones resulten más sutiles y turbias, menos susceptibles de ser puestas en duda y más alejadas de la razón. ¿Qué puede interponerse entre una proyección fija y el objetivo que ésta ha elegido como su deseada meta?
+
+Un pensamiento que no perdona hace muchas cosas. Persigue su objetivo frenéticamente, retorciendo y volcando todo aquello que cree que se interpone en su camino. Su propósito es distorsionar, lo cual es también el medio por el que procura alcanzar ese propósito. Se dedica con furia a arrasar la realidad, sin ningún miramiento por nada que parezca contradecir su punto de vista.
+
+El perdón, en cambio, es tranquilo y sosegado, y no hace nada. No ofende ningún aspecto de la realidad ni busca tergiversarla para que adquiera apariencias que a él le gusten. Simplemente observa, espera y no juzga. El que no perdona se ve obligado a juzgar, pues tiene que justificar el no haber perdonado. Pero aquel que ha de perdonarse a sí mismo debe aprender a darle la bienvenida a la verdad exactamente como ésta es.
+
+No hagas nada, pues, y deja que el perdón te muestre lo que debes hacer a través de Aquel que es tu Guía, tu Salvador y Protector, Quien, lleno de esperanza, está seguro de que finalmente triunfarás. Él ya te ha perdonado, pues ésa es la función que Dios le encomendó. Ahora tú debes compartir Su función y perdonar a aquel que Él ha salvado, cuya inocencia Él ve y a quien honra como el Hijo de Dios.
