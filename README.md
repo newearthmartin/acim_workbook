@@ -1,9 +1,11 @@
 # acim_workbook
 # A Course in Miracles - Workbook Lessons
+# Un Curso de Milagros - Lecciones
 
 This aims to be a repository that anyone can use to create course related apps.
 
 Currently available languages:
+- English
 - Español
 
 **Translations welcome!!**
