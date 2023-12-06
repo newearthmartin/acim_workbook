@@ -14,4 +14,4 @@ We will not end this year without the gift our Father promised to His holy Son. 
 
 Nothing more than that. And is a Father angry at His Son because he failed to understand the truth?
 
-We come in honesty to Him and say we did not understand, and ask Him to help us to learn His lessons through theVoice of His own Teacher. Would He hurt His Son? Or would He rush to answer him, and say, "This is My Son, and all I have is his"? Be certain He will answer thus, for these are His own Words to you. And more than that can no-one ever have, for in these Words is all there is and all that there will be throughout all time and in eternity.
+We come in honesty to Him and say we did not understand, and ask Him to help us to learn His lessons through the Voice of His own Teacher. Would He hurt His Son? Or would He rush to answer him, and say, "This is My Son, and all I have is his"? Be certain He will answer thus, for these are His own Words to you. And more than that can no-one ever have, for in these Words is all there is and all that there will be throughout all time and in eternity.
