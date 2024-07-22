@@ -19,7 +19,7 @@ There is but one exception to this lack of structuring. Permit no idle thought t
 
 When you are tempted, hasten to proclaim your freedom from temptation, as you say:
 
-_This thought I do not want. I choose instead&hellip;_
+_This thought I do not want. I choose instead ... . _
 
 And then repeat the idea for the day, and let it take the place of what you thought. Beyond such special applications of each day's idea, we will add but a few formal expressions or specific thoughts to aid your practicing. Instead we give these times of quiet to the Teacher Who instructs in quiet, speaks of peace, and gives our thoughts whatever meaning they may have.
 
